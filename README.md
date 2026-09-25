@@ -5,7 +5,7 @@
 <p align="center"> 
             <img src="https://files.catbox.moe/ybuurs.webp" height=500 width=500>
 
-<p  align="center">  ⠀⠀ ⠀⠀<img src="https://64.media.tumblr.com/0a977a99015cbd38ec58d25b0bb12ecb/bab27da16a6a8f00-a1/s75x75_c1/34b5979a41815ceb2ef3c2ffe416598895601592.gif" >  $\color{#750b0b}{⠀⠀multifandom+multishipper ⠀ ⠀}$ $\color{#e8a71c}{⠀ ⠀Arle/chance ⠀      }$ 
+<p  align="center">  ⠀⠀ ⠀⠀<img src="https://64.media.tumblr.com/0a977a99015cbd38ec58d25b0bb12ecb/bab27da16a6a8f00-a1/s75x75_c1/34b5979a41815ceb2ef3c2ffe416598895601592.gif" >  $\color{#2e2a2a}{⠀⠀multifandom+multishipper ⠀ ⠀}$ $\color{#e8a71c}{⠀ ⠀Arle/chance ⠀      }$ 
 
 <p  align="center">  $\color{#a80505}{  ⠀ ⠀ ⠀⠀Chance⠀    hvykin ⠀⠀ }$ $\color{#750b0b}{ ⠀• ⠀⠀Any ⠀⠀}$ $\color{#4a0303}{ ⠀pronouns }$ <img src="https://64.media.tumblr.com/93a8849bbc477272869fa0c54679246d/bab27da16a6a8f00-43/s75x75_c1/5464078e89d08cb0e7e3122f481e467b80dbe225.gif">   
 
