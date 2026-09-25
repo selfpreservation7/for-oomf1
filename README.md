@@ -13,7 +13,7 @@
 
 <p  align="center"> <img src="https://64.media.tumblr.com/bd34fcb117a8df79156373f3d53cbfb1/b2b2e140ec8eafd1-36/s75x75_c1/4cdf295f139f1bd0fe86a95e4240078ce524825d.gif">  $\color{#b50c04}{  ⠀ ⠀ ⠀thank ⠀ you! ⠀⠀ }$ <a href="https://github.com/Ponytowns-ships">ponytowns-ships</a>    ⠀ ⠀<img src="https://64.media.tumblr.com/a4d4778160680de8dbbe8093930a7858/af7cde8bac66f1c7-a6/s250x400/e041057181f4eab8007e4668c78b7638e7399806.gif" height=30 width=50> ⠀<img src="https://64.media.tumblr.com/caa8a1f2919b71db24f8634ae943a4cb/af7cde8bac66f1c7-89/s250x400/699ab3bcbcf3942c531ac409d3c87563d3aced1c.gif" height=30 width=50> 
  <p align="center">
-        <img src="https://files.catbox.moe/at4p0w.gif">   $\color{#d18f15}{  ⠀my  ⠀⠀   }$ <a href="https://github.com/prizeflush">girlfriend</a>  $\color{#ad6e26}{   ⠀⠀       check⠀  her ⠀ out!!⠀⠀  }$
+        <img src="https://files.catbox.moe/at4p0w.gif">   $\color{#d90707}{  ⠀my  ⠀⠀   }$ <a href="https://github.com/prizeflush">girlfriend</a>  $\color{#3d3838}{   ⠀⠀       check⠀  her ⠀ out!!⠀⠀  }$
  <p align="center">                           
  <p align="center">              
             <img src="https://files.catbox.moe/rqbvog.gif"> ⠀
